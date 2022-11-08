@@ -1,8 +1,10 @@
 Hi and bye 
 
 (crash next year) 
+
 BTC targets ~$16k eoy, $11600 to $8300 does look promising next year
-SPY $3100
+
+SPY $3100 in 2023
 
 <!---
 tradinglegendkha/tradinglegendkha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
